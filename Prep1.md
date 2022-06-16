@@ -31,7 +31,7 @@ Objective: This list should cover you for more than a week + you have more pantr
 - 1 Bag Frozen blueberries
 
 ## Meals
-### Chocolate Blueberry
+### Chocolate Blueberry Smoothie
 - 3/4 cup frozen blueberries
 - 1 banana
 - Half a clementine
@@ -40,7 +40,7 @@ Objective: This list should cover you for more than a week + you have more pantr
 - 1 teaspoon hemp seeds 
 - 1 cup coconut water
 - 1.5 scoops chocolate pea protein powder
-- ice
+- Ice
 
 #### Actions
 - Use a blender.
@@ -85,6 +85,9 @@ Objective: This list should cover you for more than a week + you have more pantr
 
 ### Snacks
 - Clementines or berries and cashews or sprouted pumpkin seeds.
+
+### Cost
+- To be edited.
 
 ***
 Original: https://jaclynwood.com/blogs/recipes
