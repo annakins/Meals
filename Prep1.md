@@ -55,37 +55,32 @@ Original: https://jaclynwood.com/blogs/recipes
 - 2 Ezekiel bread
 - 2 slices of cheese
 - Salt and pepper to taste
+- Nutritional yeast?
 
 #### Actions
 - Soak 1 cup of dried chickpeas overnight (this yields 3 cups of cooked chickpeas).
-- Toast 2 slices for 7 minutes in my air fryer to get them extra crispy. 
+- Next day: Get a bowl out. Put the chickpeas in there, as well as the other ingredients.
+- Toast 2 slices of bread for 7 minutes in my air fryer to get them extra crispy. 
 - With one minute left, add vegenaise and then a slice of cheese to each bread slice. 
 - Once done, top with lettuce, then add the chickpea salad. 
-
-
-
-Best served after 30 minutes in the fridge as the chickpeas soak up the juices and flavors.
-
-#### Actions
-Toast: 
-
-
+- Best served after 30 minutes in the fridge as the chickpeas soak up the juices and flavors.
 
 ### Pasta
+- Explore Cuisine pasta
+- Grape tomatoes
+- Olive oil
+- Red pepper flakes
+- Fresh parsley
+- Salt to taste
+- Nutritional yeast
 
-Number one all time favorite alternative pasta brand is Explore Cuisine, with my go-to’s being their lentil, chickpea, and fava bean pastas. They taste almost identical to wheat pasta to me (when cooked according to the box) but are dramatically higher in fiber, protein, and minerals, and they have no filler ingredients compared with other alternative pastas. 
+#### Actions
+- Cook Explore Cuisine's pasta according to the box instructions, but toss a handful or two of grape tomatoes in the water while it’s coming to a boil. 
+- The tomatoes should be perfectly cooked by the time the pasta is done, no matter which type of Explore Cuisine pasta you’re using. These grape tomatoes burst in the heat and it makes them so, so good. 
+- Once the pasta and tomatoes are cooked, drain most of the water, leaving a small amount, roughly 2 tbsps, to help the pasta from over-drying while adding toppings.
+- Add in olive oil. 
+- Give it a toss to coat, then add extras like red pepper flakes, fresh parsley, and salt. 
+- Lastly, top the pasta with nutritional yeast.
 
-They also have black bean, mung bean, and edamame pastas, however the texture and flavor isn't as similar to wheat pasta though still good and still packed with fiber, protein, and minerals. 
-
-These pastas are a great way to get a super nutrient dense food into your diet in an easy and convenient way and in a variety of noodle options: penne, spaghetti, lasagne, fehttuchini, rotini, fusilli, they even make a risoni! 
-
-ways to serve
-My main way: I cook Explore Cuisine's pasta according to the box instructions, but toss a handful or two of grape tomatoes in the water while it’s coming to a boil. The tomatoes should be perfectly cooked by the time the pasta is done, no matter which type of Explore Cuisine pasta you’re using. These grape tomatoes burst in the heat and it makes them so, so good. 
-
-Once the pasta and tomatoes are cooked I drain most of the water leaving a small amount, roughly 2 tbsps, to help the pasta from over-drying while adding toppings. One main way alternative pasta differs from wheat pasta is that they can dry-up easily.
-
-I’ll then add in olive oil or plant butter letting the heat from the pasta melt the butter. Give it a toss to coat, then add extras like red pepper flakes, fresh parsley, and salt. Lastly I’ll top the pasta with either nutritional yeast or this plant parmesan cheese recipe from Minimalist Baker: 3/4 cup raw cashews, 3 tbsp nutritional yeast, 3/4 tsp sea salt, 1/4 tsp garlic powder all pulsed into a fine meal using a food processor).
-
-Snacks
-
- clementines or berries and cashews or sprouted salted pumpkin seeds.
+### Snacks
+- Clementines or berries and cashews or sprouted pumpkin seeds.
