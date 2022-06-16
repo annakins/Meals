@@ -1,33 +1,34 @@
-Original: https://jaclynwood.com/blogs/recipes
+Objective: This list should cover you for more than a week + you have more pantry items as a result.
+
 ## Grocery List
-- 1 Bag Frozen blueberries
 - More than 7 bananas
+- Bag of apples for snacking
+- Bag of lemon
 - Bag of clementines 
+- Pack of grape tomatoes
+- Head of lettuce
+- Some fresh parsley
+- 2 red onion
 - Bag of brazil nuts
 - Bag of cashews
 - Bag of hemp seeds
-- Apples
+- Bag of pumpkin seeds
 - Coconut water
 - Chocolate pea protein powder
 - Dried garbanzo beans
 - Vegenaise
-- Lemon
+- (Optional) veggie sausages
 - Crushed red pepper flakes
-- Cheese in slices - mozzarella?’
-- Lettuce
-- Red onion
+- Cheese in slices - mozzarella?
 - Relish
-- Fresh parsley
 - Ezekiel bread
 - Garlic powder
 - Nutritional yeast
 - Pretzels
 - Cacao nibs
-- Pumpkin seeds
 - Lentil, chickpea, and fava bean pastas (Explore Cuisine)
-- Grape tomatoes
 - Olive oil
-- If desired: veggie sausages
+- 1 Bag Frozen blueberries
 
 ## Meals
 ### Chocolate Blueberry
@@ -84,3 +85,6 @@ Original: https://jaclynwood.com/blogs/recipes
 
 ### Snacks
 - Clementines or berries and cashews or sprouted pumpkin seeds.
+
+***
+Original: https://jaclynwood.com/blogs/recipes
