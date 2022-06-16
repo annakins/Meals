@@ -37,7 +37,7 @@ Objective: This list should cover you for more than a week + you have more pantr
 - Cacao nibs
 - Lentil, chickpea, and fava bean pastas (Explore Cuisine)
 - Olive oil
-- 1 Bag Frozen blueberries
+- Bag of frozen blueberries
 
 ## Meals
 ### Chocolate Blueberry Smoothie
