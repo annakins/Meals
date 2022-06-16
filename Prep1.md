@@ -1,5 +1,14 @@
 Objective: This list should cover you for more than a week + you have more pantry items as a result.
 
+
+# Table of Contents
+- [Grocery List](https://github.com/annakins/Meals/blob/main/Prep1.md#grocery-list)
+- [Meals](https://github.com/annakins/Meals/blob/main/Prep1.md#meals)
+  - [Chocolate Blueberry Smoothie](https://github.com/annakins/Meals/blob/main/Prep1.md#chocolate-blueberry-smoothie) 
+  - [Chickpea Tuna](https://github.com/annakins/Meals/blob/main/Prep1.md#chickpea-tuna) 
+  - [Pasta](https://github.com/annakins/Meals/blob/main/Prep1.md#pasta) 
+  - [Snacks](https://github.com/annakins/Meals/blob/main/Prep1.md#snacks) 
+- [Cost](https://github.com/annakins/Meals/blob/main/Prep1.md#cost)
 ## Grocery List
 - More than 7 bananas
 - Bag of apples for snacking
